@@ -1,10 +1,5 @@
 # detest
-
 asdasdsadsda
-
 ffffffffffffff
-aaaa
 
-
-
-rrrrrrrrrrrrrr
+From pc frank
